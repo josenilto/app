@@ -5,6 +5,8 @@ https://josenilto.github.io/app/CV_Josenilto_L_da_Silva_2024_V.1.2.pdf
 https://www.resumego.net/resume-checker
 https://readme.so/pt
 
+https://chart.cloudairy.com/cloudchart/a1ffc436-a2c0-461b-86e4-ce9b273c1590?a_id=2ec39e9f-b0c5-4623-bec6-9af28762ff15
+
 **Informações Pessoais**
 
 Nome
